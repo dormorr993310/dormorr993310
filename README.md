@@ -1,5 +1,5 @@
-Hi, I'm Dorian! 
-Aspiring cybersecurity analyst, Information Technology Roles
+HI, IM DORIAN
+ASPIRING CYBERSECURITY ANALYST, INFORMATION TECHNOLOGY ROLES
 
-👨‍💻Dorians Projects: (loading ...)
+👨‍💻DORIANS PROJECTS: (LOADING ...)
 
